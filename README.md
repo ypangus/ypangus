@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @ypangus,I'm lazy, I do pratical coding for automating tasks :)
